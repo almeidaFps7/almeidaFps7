@@ -1,6 +1,6 @@
 - 👋 Opa,sou o Joel 
 - 👀 sou interessado em csgo2,fiveM
-- 🌱 Pvplayer Amador de CSGO2
+- 🌱 Pvplayer Amador de FiveM
 - 😄 AlmeidaFps7,Blessedfps
 
 <!---
